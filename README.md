@@ -1,1 +1,1 @@
-# kaarthik-portfolio
+# sk-kaarthi.github.io
